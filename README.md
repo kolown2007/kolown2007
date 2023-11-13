@@ -1,7 +1,7 @@
 ### KoloWn
 
 
-[website](https://kolown.net/) <br>
+[website](https://kolown.com/) <br>
 [instagram](https://www.instagram.com/kolown/) <br>
 
 
